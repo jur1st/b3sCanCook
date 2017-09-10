@@ -2,7 +2,6 @@
 
 *submitted by jur1st*
 
-![Caprese](images/salad.jpg)
 
 Caprese salad is the best part of the summer. Whether you grew the tomatoes yourself or you just paid $5 a pound for the funkiest looking heirloom you could find at the farmer's market while having your ankles smashed by aggressively shopping yoga moms you deserve a good salad on the patio.
 
